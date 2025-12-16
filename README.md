@@ -1,0 +1,1 @@
+# hyprland-th1nkpad1k
